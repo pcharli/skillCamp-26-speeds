@@ -1,1 +1,1 @@
-# skillCamp-26-sppeds
+# skillCamp-26-speeds
